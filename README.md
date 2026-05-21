@@ -11,7 +11,7 @@
 
 💻 Passionate about building AI-powered apps, web development, and voice interfaces
 
-🎵 Apart from academics I enjoy playing keyboard, drawing, and exploring new languages
+🎵 Apart from academics I enjoy singing, dancing, drawing and playing the keyboard
 
 ---
 
